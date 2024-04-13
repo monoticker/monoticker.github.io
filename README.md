@@ -1,1 +1,0 @@
-# monoticker.github.io
